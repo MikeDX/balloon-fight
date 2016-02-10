@@ -35,7 +35,7 @@ Credits
 
 -Theres some in the game, but I'll put them here aswell.
 
--Everyone at div-arena (www.div-arena.com)
+-Everyone at div-arena (www.div-arena.co.uk)
 -Peter, for being so angry, and helpful
 -Woody, for saying 'I'
 -Mike, if this game Goes Window, and for other stuff, perhaps.  
